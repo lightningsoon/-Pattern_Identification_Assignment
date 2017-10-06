@@ -6,5 +6,3 @@
 链接：
 [声呐 ](http://pan.baidu.com/s/1bpIs1lX )密码：43jd
 [3和8 ](http://pan.baidu.com/s/1qXU2YpY )密码：ja0c
-
-SS
